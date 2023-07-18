@@ -10,7 +10,6 @@ Whether you're an experienced leader looking to improve your skills or a new lea
 
 In the following chapters, we'll explore the various aspects of successful leadership and provide you with actionable tips and advice to help you become a more effective leader. So let's get started on our journey towards becoming successful leaders who can guide their teams to greatness!
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 

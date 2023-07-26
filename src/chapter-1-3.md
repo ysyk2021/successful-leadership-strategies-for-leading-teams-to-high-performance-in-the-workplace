@@ -47,4 +47,4 @@ Eleanor Roosevelt, an influential First Lady of the United States, championed hu
 Conclusion
 ----------
 
-Understanding the historical perspectives on leadership theory and practice provides valuable insights into what makes successful leaders. By examining different theories and influential leaders, we can develop a comprehensive understanding of leadership principles that can be applied to lead teams to high performance in the workplace. In the following chapters, we will delve deeper into specific strategies and techniques for effective leadership.
+Understanding the historical perspectives on leadership theory and practice provides valuable insights into what makes successful leaders. By examining different theories and influential leaders, we can develop a comprehensive understanding of leadership principles that can be applied to lead teams to high performance in the workplace.

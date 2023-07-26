@@ -6,7 +6,7 @@ Introduction
 
 In order to become a successful leader, it is crucial to understand the different leadership styles and their impact on team performance. This chapter will delve into various leadership styles, discuss their strengths and weaknesses, and help you identify your own leadership style.
 
-Subchapter 2.1: Different Styles of Leadership
+Different Styles of Leadership
 ----------------------------------------------
 
 Leadership styles can vary significantly, depending on the leader's personality, values, and beliefs. Here are some commonly observed leadership styles:
@@ -31,7 +31,7 @@ Laissez-faire leaders adopt a hands-off approach and allow their team members to
 
 Transactional leaders focus on rewarding or punishing their team members based on their performance. They establish clear expectations, set goals, and provide feedback accordingly.
 
-Subchapter 2.2: Recognizing the Strengths and Weaknesses of Different Leadership Styles
+Recognizing the Strengths and Weaknesses of Different Leadership Styles
 ---------------------------------------------------------------------------------------
 
 Each leadership style has its own set of strengths and weaknesses. Understanding these can help leaders adapt their approach to different situations:
@@ -61,7 +61,7 @@ Each leadership style has its own set of strengths and weaknesses. Understanding
 * Strengths: Clear expectations and rewards, efficient task completion, focus on results.
 * Weaknesses: Limited employee development, potential for micromanagement, reliance on extrinsic motivation.
 
-Subchapter 2.3: Identifying Your Own Leadership Style
+Identifying Your Own Leadership Style
 -----------------------------------------------------
 
 Understanding your own leadership style is essential for effective leadership. Here are some steps to help you identify your style:

@@ -1,5 +1,3 @@
-Best Practices for Leading Teams to High Performance
-==========================================================================================================
 
 *In this final chapter, we will summarize the key takeaways from the book and provide actionable best practices that can help leaders become successful in leading teams towards high performance.*
 

@@ -1,8 +1,3 @@
-Chapter 2: Understanding Leadership Styles
-==========================================
-
-Introduction
-------------
 
 In order to become a successful leader, it is crucial to understand the different leadership styles and their impact on team performance. This chapter will delve into various leadership styles, discuss their strengths and weaknesses, and help you identify your own leadership style.
 

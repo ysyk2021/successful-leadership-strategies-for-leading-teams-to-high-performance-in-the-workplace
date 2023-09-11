@@ -1,5 +1,3 @@
-Hiring and Onboarding Team Members
-=====================================================================
 
 ### Introduction
 

@@ -1,5 +1,3 @@
-Identifying and Addressing Conflict in the Workplace
-=========================================================================================================
 
 Conflict is an inevitable part of any workplace, and effective leaders understand the importance of managing and resolving conflicts in order to maintain a productive and harmonious work environment. In this chapter, we will explore strategies for identifying and addressing conflicts in the workplace, as well as techniques for resolving problems that may arise.
 

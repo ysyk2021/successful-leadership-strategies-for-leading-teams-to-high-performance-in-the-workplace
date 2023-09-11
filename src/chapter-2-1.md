@@ -1,8 +1,3 @@
-Different Styles of Leadership
-==========================================================================
-
-Introduction
-------------
 
 In today's dynamic and diverse workplace, effective leadership plays a crucial role in driving teams towards high performance. However, there is no one-size-fits-all approach to leadership. Leaders need to adapt their styles to suit the needs and characteristics of their team members. In this chapter, we will explore different leadership styles and discuss how they can influence team dynamics and performance.
 

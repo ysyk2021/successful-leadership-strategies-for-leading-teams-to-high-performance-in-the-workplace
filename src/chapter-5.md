@@ -1,5 +1,3 @@
-Chapter 5: Setting Goals and Expectations
-=========================================
 
 Setting clear goals and expectations is essential for achieving high performance in the workplace. By setting clear goals and objectives, developing a shared vision for success, and monitoring progress and adjusting course as needed, leaders can guide their team members towards success and achieve long-term growth and sustainability for their organization.
 

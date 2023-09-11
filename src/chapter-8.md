@@ -1,5 +1,3 @@
-Chapter 8: Leading Change and Innovation
-========================================
 
 Leading change and innovation is essential for staying ahead of the curve and remaining competitive in an ever-changing marketplace. By navigating change and uncertainty, encouraging innovation and creativity, and fostering a culture of continuous improvement, leaders can guide their organization towards success and achieve long-term growth and sustainability.
 

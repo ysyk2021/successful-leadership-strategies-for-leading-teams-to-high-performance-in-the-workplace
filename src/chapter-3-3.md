@@ -1,8 +1,3 @@
-Building Trust and Rapport Among Team Members
-================================================================================
-
-Introduction
-------------
 
 In today's fast-paced workplace, building a strong team is crucial for achieving high performance. One of the key factors that contribute to team success is building trust and rapport among team members. Trust fosters collaboration, enhances communication, and promotes a positive work environment. This chapter will explore effective strategies for building trust and rapport within your team.
 

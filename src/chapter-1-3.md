@@ -1,8 +1,3 @@
-Historical Perspectives on Leadership Theory and Practice
-===========================================================================================================
-
-Introduction
-------------
 
 In this chapter, we will explore the historical perspectives on leadership theory and practice. Understanding the evolution of leadership concepts throughout history provides a solid foundation for developing successful leadership strategies in the workplace. We will examine key theories and influential leaders who have shaped our understanding of effective leadership.
 

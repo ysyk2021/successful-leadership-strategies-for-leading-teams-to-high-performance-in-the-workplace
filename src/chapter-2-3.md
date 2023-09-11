@@ -1,8 +1,3 @@
-Identifying Your Own Leadership Style
-=================================================================================
-
-Introduction
-------------
 
 Effective leadership plays a crucial role in driving teams towards high performance in the workplace. As a leader, understanding your own leadership style is essential for maximizing your potential and achieving success. In this chapter, we will explore various leadership styles and help you identify which style aligns with your strengths and values.
 

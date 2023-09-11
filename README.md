@@ -1,4 +1,6 @@
+# Successful Leadership: Strategies for Leading Teams to High Performance in the Workplace
 
+Book Link: [https://zhengpublishing.com/successful-leadership-strategies-for-leading-teams-to-high-performance-in-the-workplace/](https://zhengpublishing.com/successful-leadership-strategies-for-leading-teams-to-high-performance-in-the-workplace/)
 
 Leadership is a critical component of success in the workplace. Effective leaders are able to inspire, motivate, and guide their teams towards achieving high performance and positive outcomes. However, leadership is not a one-size-fits-all approach, and there are many different strategies and approaches that can be used to lead teams to success.
 

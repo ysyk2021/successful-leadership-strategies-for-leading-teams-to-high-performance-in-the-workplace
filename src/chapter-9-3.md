@@ -1,4 +1,3 @@
-# Seeking Feedback and Mentorship
 
 In this chapter, we will explore the importance of seeking feedback and mentorship in successful leadership. Effective leaders understand that receiving feedback and guidance from others can significantly contribute to their personal and professional growth. We will discuss strategies and techniques that leaders can utilize to actively seek feedback and find valuable mentors to support their leadership journey.
 

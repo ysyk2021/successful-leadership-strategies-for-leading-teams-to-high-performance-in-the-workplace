@@ -1,8 +1,3 @@
-Establishing Team Norms and Expectations
-===========================================================================
-
-Introduction
-------------
 
 In today's dynamic workplace, effective leaders understand the importance of building strong teams to drive high performance. One crucial aspect of team building is establishing clear norms and expectations. This chapter explores the significance of team norms and expectations and provides strategies for leaders to create a positive team culture.
 

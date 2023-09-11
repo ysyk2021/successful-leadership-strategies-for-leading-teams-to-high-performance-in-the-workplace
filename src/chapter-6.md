@@ -1,5 +1,3 @@
-Chapter 6: Motivating and Engaging Employees
-============================================
 
 In this chapter, we will explore the key aspects of motivation and employee engagement in the workplace. We will discuss various strategies that leaders can employ to motivate their teams and cultivate a highly engaged workforce. Additionally, we will address common performance issues and challenges that leaders may encounter and provide guidance on how to effectively handle them.
 
